@@ -7,6 +7,8 @@
 
 Hier haben sie das klassische ***HIHIHIHA***
 
+## dies sollten sie in google translate tun 
+
 **私たちは愛する見知らぬ人ではありません
 あなたはルールを知っています、そして私もそうです（私はそうします）
 私が考えているのは完全なコミットメントです
