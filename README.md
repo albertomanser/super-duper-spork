@@ -12,7 +12,7 @@ Hier haben sie das klassische ***HIHIHIHA***
 
 
 
-## dies sollten sie in google translate tun 
+## dies sollten sie ins englische übersetzen
 
 **私たちは愛する見知らぬ人ではありません
 あなたはルールを知っています、そして私もそうです（私はそうします）
